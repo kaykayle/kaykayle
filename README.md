@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kaykayle
 - 👀 I’m interested in art, books, and NFTs
-- 🌱 I’m currently learning Graphic design and japanese
+- 🌱 I’m currently learning Graphic design and self-grow stuff
 - 💞️ I’m looking to collaborate on a Web3 Clothing brand
 - 📫 How to reach me via email: kayacostamartin@gmail.com (in subjet write ''tora'')
 
